@@ -1,1 +1,0 @@
-# TehDomic.github.io
